@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Greaklin
 
-Starting my GitHub life from now on, I will become powerful day by day.
+All that counts is code, code and code.
 
 Greaklin, fighting!!!
 
